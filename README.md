@@ -1,4 +1,4 @@
-# Truc-Quynh-Cutee
+
 < Đừng suy nghĩ nhiều nữa, đừng độc thân nữa mà hãy làm người yêu của anh đi Quỳnh à! <3 >
 
 <HTML>
